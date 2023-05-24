@@ -4,17 +4,18 @@
 
 Benim Tarafımdan Yapılan Çeviriler/Translations Done by Me:
 
-LISA: The Painful RPG Türkçe Yama 
-[https://forum.donanimhaber.com/lisa-the-painful-turkce-yama--153093620](https://soloqyama.site/konular/lisa-the-painful-turkce-yama.28/)
+LISA The Painful RPG Türkçe Yama 
+https://soloqyama.com/konular/lisa-the-painful-turkce-yama.28/
+LISA The Joyful
+https://soloqyama.com/turkceyamalar/lisa-the-joyful-turkce-yama-projesi.19/
 
 Katkıda Bulunduğum Çeviriler/Translations I Have Contuributed:
 
 TDPA:House Of Ashes Türkçe Yama
-https://soloqyama.com/konular/tdpa-house-of-ashes-projesi.78/unread
-
+https://soloqyama.com/turkceyamalar/tdpa-house-of-ashes.18/
 
 TDPA:Little Hope TÜrkçe Yama
-https://soloqyama.com/konular/the-dark-pictures-little-hope-turkce-yama-projesi.8/unread
+https://soloqyama.com/turkceyamalar/the-dark-pictures-little-hope-turkce-yama.16/
 
 
 Discord:
