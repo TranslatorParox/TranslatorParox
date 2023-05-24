@@ -6,6 +6,7 @@ Benim Tarafımdan Yapılan Çeviriler/Translations Done by Me:
 
 LISA The Painful RPG Türkçe Yama 
 https://soloqyama.com/konular/lisa-the-painful-turkce-yama.28/
+
 LISA The Joyful
 https://soloqyama.com/turkceyamalar/lisa-the-joyful-turkce-yama-projesi.19/
 
