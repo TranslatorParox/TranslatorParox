@@ -13,3 +13,5 @@ TDPA:House Of Ashes Türkçe Yama
 https://soloqyama.site/konular/tdpa-house-of-ashes-projesi.78/unread
 TDPA:Little Hope TÜrkçe Yama
 https://soloqyama.site/konular/the-dark-pictures-little-hope-turkce-yama-projesi.8/unread
+Discord:
+PAROX#9959
