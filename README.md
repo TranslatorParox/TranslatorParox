@@ -20,4 +20,4 @@ https://soloqyama.com/turkceyamalar/the-dark-pictures-little-hope-turkce-yama.16
 
 
 Discord:
-PAROX#9959
+Par.ox
