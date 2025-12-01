@@ -2,10 +2,15 @@ Translator
 English-Turkish
 
 Translations that I'm working/retranslating:
+
 OFF RPG BY MORTIS GHOST (NEEDS PROOFREADING)
+
 LISA The Painful/Joyful Definitive Edition
+
 (PLANNING TO START FROM SCRATCH)
+
 ONESHOT/ONESHOT:WME Translation
+
 (FILES ARE READY TO BE TRANSLATED)
 
 
